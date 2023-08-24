@@ -4,4 +4,4 @@ gosto de animes e jogos
 Esporte:
 vôlei
 
-![.](https://media.tenor.com/6dlNDTGcbqYAAAAC/anime.gif).
+![](https://media.tenor.com/6dlNDTGcbqYAAAAC/anime.gif).
